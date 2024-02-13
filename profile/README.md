@@ -37,7 +37,6 @@ Stay connected and be the first to know what's coming:
 # Embark on the Journey
 
 With Spyro, we're not just igniting change; we're crafting the future, piece by piece. Together, let's explore the possibilities and make history.
-Make sure to insert the correct links for the ASCII dragon art, your GitHub page, and your Telegram group to ensure interested parties can follow your progress and stay engaged.
 
 ---
 ```
