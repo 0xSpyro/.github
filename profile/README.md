@@ -18,7 +18,7 @@ Imagine a world where every cryptocurrency project can seamlessly connect, engag
 - **Enhanced Project Dynamics:** Beyond mere integration, our offering amplifies functionality, fostering trust and innovation within the community.
 - **Synergistic Opportunities:** Our approach is designed to create a win-win scenario, promoting sustainable growth and a thriving ecosystem for all involved.
 
-## Why Spyro ETH?
+## Why Spyro | $PYRO?
 
 Spyro ETH is more than just a platform; it's a beacon for the future, guiding the way towards a more interconnected and dynamic crypto ecosystem. By aligning with us, you're not just adopting cutting-edge technology; you're stepping into a movement geared towards transformative change.
 
