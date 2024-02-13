@@ -6,7 +6,7 @@ Born on New Year's eve, a vision to behold, This crypto token's story, bravely t
 
 ---
 
-Embark on a journey with Spyro ETH, where we're forging a new path in the cryptosphere. Poised at the edge of innovation, we're crafting a solution that will redefine how communities interact within the digital currency landscape, especially on platforms like Telegram.
+Embark on a journey with Spyro | $PYRO, where we're forging a new path in the cryptosphere. Poised at the edge of innovation, we're crafting a solution that will redefine how communities interact within the digital currency landscape, especially on platforms like Telegram.
 
 ## Our Vision
 Imagine a world where every cryptocurrency project can seamlessly connect, engage, and evolve with its community. Where the boundaries of collaboration and participation are reimagined. Spyro ETH is the key to this new realm, offering a sneak peek into a future brimming with potential and uncharted possibilities.
