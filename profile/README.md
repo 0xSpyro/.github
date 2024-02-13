@@ -9,7 +9,7 @@ Born on New Year's eve, a vision to behold, This crypto token's story, bravely t
 Embark on a journey with Spyro | $PYRO, where we're forging a new path in the cryptosphere. Poised at the edge of innovation, we're crafting a solution that will redefine how communities interact within the digital currency landscape, especially on platforms like Telegram.
 
 ## Our Vision
-Imagine a world where every cryptocurrency project can seamlessly connect, engage, and evolve with its community. Where the boundaries of collaboration and participation are reimagined. Spyro ETH is the key to this new realm, offering a sneak peek into a future brimming with potential and uncharted possibilities.
+Imagine a world where every cryptocurrency project can seamlessly connect, engage, and evolve with its community. Where the boundaries of collaboration and participation are reimagined. Spyro | $PYRO is the key to this new realm, offering a sneak peek into a future brimming with potential and uncharted possibilities.
 
 ## Key Features
 
@@ -20,7 +20,7 @@ Imagine a world where every cryptocurrency project can seamlessly connect, engag
 
 ## Why Spyro | $PYRO?
 
-Spyro ETH is more than just a platform; it's a beacon for the future, guiding the way towards a more interconnected and dynamic crypto ecosystem. By aligning with us, you're not just adopting cutting-edge technology; you're stepping into a movement geared towards transformative change.
+Spyro is more than just a platform; it's a beacon for the future, guiding the way towards a more interconnected and dynamic crypto ecosystem. By aligning with us, you're not just adopting cutting-edge technology; you're stepping into a movement geared towards transformative change.
 
 ## The Future is Near
 
@@ -36,7 +36,7 @@ Stay connected and be the first to know what's coming:
 
 # Embark on the Journey
 
-With Spyro ETH, we're not just igniting change; we're crafting the future, piece by piece. Together, let's explore the possibilities and make history.
+With Spyro, we're not just igniting change; we're crafting the future, piece by piece. Together, let's explore the possibilities and make history.
 Make sure to insert the correct links for the ASCII dragon art, your GitHub page, and your Telegram group to ensure interested parties can follow your progress and stay engaged.
 
 ---
