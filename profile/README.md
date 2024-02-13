@@ -1,4 +1,4 @@
-# Spyro ETH
+# Spyro | $PYRO
 
 In dragon's year, "Spyro" took to flight, Promising prosperity, a future bright. With each transaction, its value climbs, In a deflationary dance, through digital times.
 
@@ -32,7 +32,7 @@ Stay connected and be the first to know what's coming:
 - Join our [Telegram](https://t.me/Spyro_eth) community to engage with fellow pioneers.
 - Interact with us on [Twitter](https://twitter.com/SpyronEth) to support the hype train.
 
-> "The future belongs to those who believe in the beauty of their dreams." - Spyro ETH
+> "The future belongs to those who believe in the beauty of their dreams." - Spyro | $PYRO
 
 # Embark on the Journey
 
