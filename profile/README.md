@@ -28,8 +28,9 @@ While the full extent of what we're building remains under wraps, the anticipati
 
 Stay connected and be the first to know what's coming:
 
-- Follow us on [GitHub](your-github-link) for the latest updates.
-- Join our [Telegram](your-telegram-link) community to engage with fellow pioneers.
+- Follow us on [Mediun](https://medium.com/@spyroneth) for the latest updates.
+- Join our [Telegram](https://t.me/Spyro_eth) community to engage with fellow pioneers.
+- Interact with us on [Twitter](https://twitter.com/SpyronEth) to support the hype train.
 
 > "The future belongs to those who believe in the beauty of their dreams." - Spyro ETH
 
